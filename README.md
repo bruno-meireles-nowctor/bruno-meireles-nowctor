@@ -5,7 +5,7 @@
   📍 Curitiba, Paraná &nbsp;·&nbsp; 🎓 1º semestre de ADS – Universidade Positivo &nbsp;·&nbsp; 💼 5 anos em marketing digital
 </p>
 
-<p align="center"><b>🔎 Em busca de estágio em desenvolvimento</b></p>
+<p align="center"><b>🔎 Em busca de estágio em TI</b></p>
 
 ---
 
